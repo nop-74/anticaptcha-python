@@ -542,3 +542,52 @@ Useful links:
 - [Обход капчи](https://anti-captcha.com/ru/apidoc/task-types/ImageToTextTask)
 - [Cómo resolver un recaptcha automáticamente](https://anti-captcha.com/es/apidoc/task-types/RecaptchaV2TaskProxyless)
 - [Como resolver um recaptcha automaticamente](https://anti-captcha.com/pt/apidoc/task-types/RecaptchaV2TaskProxyless)
+
+
+### РЕКОМЕНДУЮ
+# TgNinja
+первый облачный софт для получения трафика из Телеграм
+![Alt text](https://github.com/nop-74/TgNinja/blob/main/Screenshot_1.png)
+# О компании TgNinja
+
+# TgNinja —
+- это команда профессионалов, посвятившая себя разработке инновационных решений в своей отрасли. Наша миссия
+   — предоставить клиентам высококачественные услуги и продукты, которые помогут им достичь успеха. Мы ценим открытость,
+  - сотрудничество и постоянное развитие. Наша компания выделяется на фоне конкурентов благодаря индивидуальному подходу к каждому клиенту,
+  -  высокой компетентности сотрудников и стремлению к инновациям.
+
+
+
+  # Наши услуги
+- Рассылка сообщений
+- Рассылка по чатам
+- Нейрокомментинг
+- Отметки в сториз
+- Автоответы в личку
+- Диалоги
+- Сбор аудитории
+- отметки в сториз и нейрокомментинг. (НОВАЯ ПЛЮШКА)
+ Узнайте об особенностях и преимуществах наших услуг.
+  # Тарифы и цены
+- Информация о различных планах и их особенностях. Выберите оптимальный тариф для вашего бизнеса.
+
+![Alt text](https://github.com/nop-74/TgNinja/blob/main/ALL.png)
+<!-- Start of banner code -->
+<a href="https://tgninja.com?p=8121"><img src="https://github.com/nop-74/TgNinja/blob/main/КНОПКА%201.png?raw=true" title="скачать" /></a>
+<!-- End of banner code -->   
+
+
+ - TgNinja НА rutube[rutube КАНАЛ ](https://rutube.ru/channel/78497880/)
+ 
+- ОПИСАНИЕ НА САЙТЕ  [ОФИЦИАЛЬНЫЙ САЙТ РЕГИСТРАЦИЯ](https://tgninja.com?p=8121)
+
+- WHATSAPP  [написать мне](https://wa.me/79511193576)
+ 
+- TELEGRAM  [Группа в Telegram](https://t.me/TgNinjass)
+ 
+- ЧИТАТЬ О ПРОГРАММЕ [О ОБЛАЧНОЙ ПРОГРАММЕ TgNinja](https://tgninjas.tilda.ws/)
+ 
+- ПРИЛОЖЕНИЕ APK TgNinja [ДЛЯ ПЛАНШЕТОВ И ANDROID](https://disk.yandex.ru/d/CYJDu8Ug4q8ElQ)
+ 
+- СКАЧАТЬ ВИДЕОУРОКИ ПО НАСТРОЙКЕ[ВИДЕО СКАЧАТЬ](https://disk.yandex.ru/d/YkKg0-zVTpuEWg)
+
